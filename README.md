@@ -1,7 +1,8 @@
 # Robert Middaugh
 
 **LinkedIn | GitHub**  
-Rayville, MO | (816) 392-8375 | hguaddim@gmail.com
+Rayville, MO | Mobile (816) 392-8375 | Work Cell (816) 814-0081 | hguaddim@gmail.com |
+robert.middaugh@fedex.com
 
 ## Objective
 
@@ -73,7 +74,3 @@ Metropolitan Community College - Longview
 - Outdoor activities including fishing, hiking, and gardening with family.
 - Lifelong learning in technology and solving challenges through coding.
 
-## Clever Viewing Method
-
-### QR Code Access
-You can create a QR code to your resume, hosted as a PDF or on GitHub.
