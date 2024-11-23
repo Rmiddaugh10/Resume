@@ -1,6 +1,6 @@
 # Robert Middaugh
 
-**[LinkedIn](https://www.linkedin.com/in/robert-middaugh-b302299b?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app) | GitHub**  
+**[LinkedIn](https://www.linkedin.com/in/robert-middaugh-b302299b?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app) | [GitHub](https://github.com/Rmiddaugh10)**  
 Rayville, MO | Mobile (816) 392-8375 | Work Cell (816) 814-0081 | hguaddim@gmail.com |
 robert.middaugh@fedex.com
 
